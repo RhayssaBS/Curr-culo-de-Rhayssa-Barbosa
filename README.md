@@ -1,1 +1,1 @@
-# Curr-culo-de-Rhayssa-Barbosa
+# Currículo-de-Rhayssa-Barbosa
